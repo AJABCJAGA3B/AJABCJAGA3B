@@ -8,7 +8,7 @@ Meu nome é André Joaquim
 
 ### Você entrar em contato comigo 📫
 
-0000109737242xsp@aluno.educacao.sp.gov.br
+0000109737242xsp@al.educacao.sp.gov.br
 
 ![](https://gifs.eco.br/wp-content/uploads/2022/08/gifs-de-burro-3.gif)
 
